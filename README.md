@@ -1,5 +1,6 @@
 ### Sou o Edi 🤓
 - 👧 Pai da Helena
+- 🥁 Drummer
 - 🌱 Vegan
 - 🎮 Gamer
 - 🌈 Ele/Dele
